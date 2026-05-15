@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with automatic Polymarket Module | API-integration + trade-sniping, the #1 module. Includes API-integration and trade-sniping for a smoother and
 
 
 
